@@ -1,0 +1,2 @@
+# kurd-photo
+c
